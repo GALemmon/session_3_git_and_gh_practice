@@ -1,0 +1,1 @@
+I have done quit a bit of traveling.  I had to opportunity to spend more than a month in Italy singing opera on two occasions.  I am looking forward to a vacation in Mexico right before the start of Mod 1.
