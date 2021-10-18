@@ -1,0 +1,1 @@
+Right now I don't have time for a ton of hobbies.  The two that have hung on through divorce, work, moving four times, and going back to school are motorcycling and brown liquor.  I have enjoyed both for some time and they continue to be wonderful sources of relaxation for me.
